@@ -1,6 +1,6 @@
 # Joseph Destiny Okoro
 
-👨‍💻 Software Developer | 🌐 Open Source Enthusiast | 🏋️ Fitness Fanatic | Website Developer | Graphic Designer | Data Analyst etc
+👨‍💻 Software Developer | 🌐 Open Source Enthusiast | Website Developer | Graphic Designer | Data Analyst etc
 
 ## About Me
 
